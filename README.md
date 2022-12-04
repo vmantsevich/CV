@@ -13,6 +13,6 @@
 3. Развиваться в новой для меня сфере
 
 
-А это собственно я :)
-![My photo](https://monosnap.com/file/sRROYo57WML1m4TjJ1FiaOc6ozsNhz)
+А это собственно я в душе:)
+![My photo](https://proprikol.ru/wp-content/uploads/2020/08/krasivye-kartinki-kotikov-17.jpg)
 
